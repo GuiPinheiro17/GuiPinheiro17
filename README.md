@@ -1,4 +1,4 @@
-### Olá! eu sou o Guilherme
+### Olá, Guilherme aqui. 
 
 - Atualmente estou estudando Engenharia de Software na Universidade Federal do Ceará (UFC). 
 
